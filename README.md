@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on projects
 - 📫 How to reach me @nicolas2fr on twitter
 
-- # Nicolas Bermond
+# Nicolas Bermond
 
 Auteur, éditeur, stratège, explorateur de territoires culturels, numériques et symboliques.
 
